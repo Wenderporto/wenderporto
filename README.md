@@ -14,14 +14,14 @@ May our connections make a better future!
 
 ## Conecte-se Comigo
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-000?style=for-the-badge&logo=linkedin&logoColor=0E76A8)](https://www.linkedin.com/in/wender-henrique-porto-50b67721a)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-000?style=for-the-badge&logo=linkedin&logoColor=0E76A8)](https://www.linkedin.com/in/wender-h-porto)
 [![Facebook](https://img.shields.io/badge/Facebook-000?style=for-the-badge&logo=facebook)](https://www.facebook.com/whporto.porto/)
 [![Twitter](https://img.shields.io/badge/Twitter-000?style=for-the-badge&logo=twitter)](https://twitter.com/wender_porto)
 [![Instagram](https://img.shields.io/badge/Instagram-000?style=for-the-badge&logo=instagram)](https://www.instagram.com/wenderhporto/)
 [![Discord](https://img.shields.io/badge/Discord-000?style=for-the-badge&logo=discord)](https://www.discord.com/in/wenderporto/)
 
 
-## Insiguinas 
+## Certificações 
 [![Credly](https://images.credly.com/size/140x140/images/9a13a2d2-c007-4260-81bd-bf5d1ffb9223/image.png)](https://www.credly.com/badges/403e359d-609d-413f-90fd-8aedf118ac32)
 [![Credly](https://images.credly.com/size/140x140/images/975f4562-83b7-4652-9cd8-4490a68441be/image.png)](https://www.credly.com/badges/e1b48b08-946d-439e-86ac-dce5796b2cbc)
 
