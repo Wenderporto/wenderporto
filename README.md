@@ -1,9 +1,8 @@
 # Wender Porto
 
 ### Welcome to my profile!
-I'm a curious person, who loves technology and creative theories.
-I have a conviction strongly engraved in me that continuous learning is essential for a quality professional and social life.
-May our connections make a better future!
+Experiência de 15 anos na área farmacêutica, com graduação em Gestão de Tecnologia da Informação, Business Inteligence, Cloud e Dados.
+Me desenvolvo constantemente com foco em, Análise de Bi, Cloud, ciência de dados e outros.
 
 ## Hard Skills
 
